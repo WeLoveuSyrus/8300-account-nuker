@@ -8,4 +8,4 @@ its just simple accoutn nuker or can use it full closing dm and leaving server
 
 | SS OF THE TOOL| 
 | ------------- | 
-| ![image](https://cdn.discordapp.com/attachments/835677126958776320/845065428869971968/unknown.png) |
+| ![image](https://cdn.discordapp.com/attachments/835677126958776320/845065629035397130/unknown.png) |
